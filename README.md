@@ -14,3 +14,8 @@ https://github.com/Stormwindsky/Violent-monkey-Template-Script/
 # Better Emoji Gamejolt 😀
 
 https://github.com/Stormwindsky/Better-Emoji-Gamejolt
+
+
+# SpaceJolt .𖥔 ݁ ˖🪐.𖥔 ݁ ˖
+
+https://github.com/Stormwindsky/JoltSpace
